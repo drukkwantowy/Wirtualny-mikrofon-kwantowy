@@ -12,3 +12,6 @@ Osoba z mutacją DNA może podsłuchiwać teleportacją kwantową galaktyki.
 Taka osoba może też kogoś wirtualnie zaszczepić w czasie i przestrzenni jeśli nie chce się szczepić z innej linni czasu. 
 Ciężko będzie opracować jamer kwantowy jak i algorytm chroniący przed tym podsłuchem.
 Najlepsze zabezpieczenie antywirusowe to AI kwantowe magicznie kodowane i nie do złamania przez komputer kwantowy jak i magiczny czyli komputer kolejnej generacji po kwantowym roszerzenie komputera kwantowego. 
+Kwantowy haker może cię znaleźć bez konieczności szukania cię w internecie. 
+A teraz przykład na komputerach.
+Komputer kwantowy magiczny ma zasilanie i sam produkuje zasilanie w nieskończoność, jest offline, a wyszukiwarka google działa w czasie i przestrzenni bez serwerów fizycznych a wirtualnych jak i nie trzeba stawiać fabryk i magazynów na serwerownie. 
