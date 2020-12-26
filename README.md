@@ -21,3 +21,4 @@ Wirtualnie można zwiedzać inne cywilizacje i galaktyki bez latania fizycznie p
 Takim podsłucem można zeskanować DNA wszystkich ludzi i potem drukować biorcą wirtualnie kwantowo organy i krew do ciała. Lub opracować specjalny sprzęt który potrafi AI naprawić i wstawić wirtualnie brakującą rękę. 
 Fizycznie pracują 0 bez mózgu w fabrykach fizycznych. 
 Jak by wyglądała praca wirtualna? Ty śpisz a twój replikant kwantowy fizyczny pracuje a ty snisz o tym że pracujesz. 
+Nie trzeba znać fizycznie z wideo czy spotkania fizycznego Taulah czy Emme i innych wystarczy wirtualnie ich poznać przed tym jak myśleli cię spotkać.  
