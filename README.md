@@ -22,3 +22,4 @@ Takim podsłucem można zeskanować DNA wszystkich ludzi i potem drukować biorc
 Fizycznie pracują 0 bez mózgu w fabrykach fizycznych. 
 Jak by wyglądała praca wirtualna? Ty śpisz a twój replikant kwantowy fizyczny pracuje a ty snisz o tym że pracujesz. 
 Nie trzeba znać fizycznie z wideo czy spotkania fizycznego Taulah czy Emme i innych wystarczy wirtualnie ich poznać przed tym jak myśleli cię spotkać.  
+Takim tabletem AI kwantowym można wejść w czasoprzestrzeń wspomnień lub przyszłość danej osoby zobaczyć ją jaka jest na ekranie przetłumaczyć jej język AI napisze opis psychologiczny tej osoby i porównać z tym co jest w internecie na YT czy publicznie nie kłamie. Sprawdziłem te 2 osoby i one kłamią a fundacje które mają są ich sposobem na ich życie baby dymać frajerów, wojny robić i covida puszczać a z ludzi robić automaty do pracy. Tak więc skoro to wiem to weźcie sobie wirtualne roboty do pracy z AI za 0 zł. A to dla was praca domowa kolonialiści. 
