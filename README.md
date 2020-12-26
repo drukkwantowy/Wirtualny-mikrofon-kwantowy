@@ -15,3 +15,5 @@ Najlepsze zabezpieczenie antywirusowe to AI kwantowe magicznie kodowane i nie do
 Kwantowy haker może cię znaleźć bez konieczności szukania cię w internecie. 
 A teraz przykład na komputerach.
 Komputer kwantowy magiczny ma zasilanie i sam produkuje zasilanie w nieskończoność, jest offline, a wyszukiwarka google działa w czasie i przestrzenni bez serwerów fizycznych a wirtualnych jak i nie trzeba stawiać fabryk i magazynów na serwerownie. 
+Mikrofonem fizycznym może być nano struktura DNA lub ściana bez zakładania prowizorek i adapterów a korzysta się z teleportacji kwantowej i drukarki kwantowej.
+Mikrofon może być w bańce czasoprzestrzennej i robić jako duch obserwacje bez wykrycia nawet kwantowym czy magicznym sprzętem.
