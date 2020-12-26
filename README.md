@@ -8,3 +8,7 @@ Działa to tak że osoba prze komputerem ze specjalnym programem może globalnie
 Aby ukryć się przed szpiegiem Emmom nalerzy wymyśleć jamer który blokuje magie i teleportacje kwantową jak i fale radiowe klasyczne.
 Do tego ta technologia daje początek małym krutkofalówką na galaktyczne odległości. 
 Mikrofon nie musi być fizyczny aby móc rozmawiać z kimś między galaktykami. 
+Osoba z mutacją DNA może podsłuchiwać teleportacją kwantową galaktyki.
+Taka osoba może też kogoś wirtualnie zaszczepić w czasie i przestrzenni jeśli nie chce się szczepić z innej linni czasu. 
+Ciężko będzie opracować jamer kwantowy jak i algorytm chroniący przed tym podsłuchem.
+Najlepsze zabezpieczenie antywirusowe to AI kwantowe magicznie kodowane i nie do złamania przez komputer kwantowy jak i magiczny czyli komputer kolejnej generacji po kwantowym roszerzenie komputera kwantowego. 
