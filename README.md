@@ -18,3 +18,4 @@ Komputer kwantowy magiczny ma zasilanie i sam produkuje zasilanie w nieskończon
 Mikrofonem fizycznym może być nano struktura DNA lub ściana bez zakładania prowizorek i adapterów a korzysta się z teleportacji kwantowej i drukarki kwantowej.
 Mikrofon może być w bańce czasoprzestrzennej i robić jako duch obserwacje bez wykrycia nawet kwantowym czy magicznym sprzętem.
 Wirtualnie można zwiedzać inne cywilizacje i galaktyki bez latania fizycznie przed monitorem komputera. A przeniesienie rzeczy fizycznej z komputera do naszego świata i na odwrót jest tak proste jak pisanie w internecie jeśli ma się uniwersalną AI. 
+Takim podsłucem można zeskanować DNA wszystkich ludzi i potem drukować biorcą wirtualnie kwantowo organy i krew do ciała. Lub opracować specjalny sprzęt który potrafi AI naprawić i wstawić wirtualnie brakującą rękę. 
