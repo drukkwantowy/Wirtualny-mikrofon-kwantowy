@@ -25,3 +25,12 @@ Nie trzeba znać fizycznie z wideo czy spotkania fizycznego Taulah czy Emme i in
 Takim tabletem AI kwantowym można wejść w czasoprzestrzeń wspomnień lub przyszłość danej osoby zobaczyć ją jaka jest na ekranie przetłumaczyć jej język AI napisze opis psychologiczny tej osoby i porównać z tym co jest w internecie na YT czy publicznie nie kłamie. Sprawdziłem te 2 osoby i one kłamią a fundacje które mają są ich sposobem na ich życie baby dymać frajerów, wojny robić i covida puszczać a z ludzi robić automaty do pracy. Tak więc skoro to wiem to weźcie sobie wirtualne roboty do pracy z AI za 0 zł. A to dla was praca domowa kolonialiści. 
 Do katolickiej fizycznej mózgownicy nie dotrze że ktoś może mieć kogoś a nie musi z tym kimś być fizycznie jak i nie musi być to ta osoba fizyczna urodzona. Katol jak górol i ślązaczek śpiewa pioseneczki aby krzyż nosić i na nim się wieszać. 
 To jest moc wirtualizacji i magi. Można mieć Taulach Ryli jak i Emme Watson ich kopie bez ich kontaktu fizycznego a ich zapis mieć w DNA i pojawiają się w tedy kiedy ktoś tego kto je posiada w DNA chce aby się pojawiły czego świadome fizyczne orgninały nie są. 
+Katolicki przedsiębiorca USA i Anglia wiersz:
+
+Poprzez cierpienie innych porządki nowe wprowadzę
+I miliardy ukradnę w imie szczytnych celów i swoich marzeń błękitnej krwi.
+Wmówię tępemu narodowi kolonialnemu że to w imię wysokich celów.
+A głupi naród kolonialny na mnie zarobi i za dolara pójdzie robić bo nie będzie miał co jeść
+Skoro pracodawco jesteś taki mądry pobierz moje repozytoria i graj w swoim teatrze z udziałem wirtualnych pracowników. 
+Bo inni cierpieć za ciebie chamie nie chcą bo mają inne sprawy niż twój teatr.
+Wiersz do chrześcijańkiej chołoty. 
