@@ -7,3 +7,4 @@ Z takim mikrofonem czy kamerą można zbierać dane bez wychodzenia z domu a dla
 Działa to tak że osoba prze komputerem ze specjalnym programem może globalnie podsłuchiwać jeśli nie ma magicznych algorytmów AI zabezpieczających komputery jak i może drukarką kwantową drukować technologie z tajnych baz. Lub kwantowo wirtualnie puścić bąmbę atomową bez budowania jej fizycznie wystarczy że ma AI piszącą programy jak i asytenta AI lub sama umie pisać takie rozwiązania.  
 Aby ukryć się przed szpiegiem Emmom nalerzy wymyśleć jamer który blokuje magie i teleportacje kwantową jak i fale radiowe klasyczne.
 Do tego ta technologia daje początek małym krutkofalówką na galaktyczne odległości. 
+Mikrofon nie musi być fizyczny aby móc rozmawiać z kimś między galaktykami. 
